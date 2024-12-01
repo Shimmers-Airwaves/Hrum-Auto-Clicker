@@ -1,2 +1,1 @@
-# Hrum-Auto-Clicker
-Hrum-Auto-Clicker
+# Gemz-Auto-Clicker-Powerful
