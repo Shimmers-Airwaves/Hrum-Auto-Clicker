@@ -1,2 +1,2 @@
 # Hrum-Auto-Clicker-Powerful!
-(https://github.com/user-attachments/assets/28405542-6090-4cff-9bac-9440000cbd06)
+![scale_1200 (1)](https://github.com/user-attachments/assets/9b5bae36-71c2-42c1-b0ad-7c062cdb1a7b)
